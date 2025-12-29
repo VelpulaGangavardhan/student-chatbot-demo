@@ -67,4 +67,4 @@ If you like this project:
 
 ## 📩 Contact
 For queries or collaboration:
-📧 Email: *your email*
+📧 Email: gangavardhan2005@gmail.com
